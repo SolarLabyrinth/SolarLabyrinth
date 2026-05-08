@@ -1,1 +1,1 @@
-Full Time Software Engineer that allegedly streams and makes games sometimes.
+Software dev that allegedly streams and makes games sometimes.
